@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **csabhi108@gmail.com**
 
-- ⚡ Fun fact **I binge watch shark tank**
+- ⚡ Fun fact **I have a new startup idea everyday 🤣🤣 **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
